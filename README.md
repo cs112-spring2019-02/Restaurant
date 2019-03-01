@@ -15,3 +15,4 @@ Gaby Batista | Delarosa
 Chiara Lim | Souvla
 Marcus Bradlee | MAC'D
 Sophia Ladwiniec | Gracias Madre
+Adon Anglon | Izumiya
