@@ -17,3 +17,5 @@ Jerome Reduta | Marufuku Ramen
 Chiara Lim | Souvla
 Marcus Bradlee | MAC'D
 Sophia Ladwiniec | Gracias Madre
+Kevin Mateo | Street Taco
+
