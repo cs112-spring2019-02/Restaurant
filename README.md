@@ -11,3 +11,4 @@ Stokala Spring | Zuni
 Adon Anglon | Izumiya
 Austin Kerby | Le Colonial
 Gerardo Aldana | Halal Guys
+Theodora Nguyen | MAC'D
