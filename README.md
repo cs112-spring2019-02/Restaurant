@@ -5,3 +5,4 @@ List of favorite SF restaurants
 ---|---
 Lisa Leese | Flour + Water
 Dennis Alano | Maestros
+Dennis Dang | House of Prime Rib
