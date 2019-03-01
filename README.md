@@ -12,4 +12,5 @@ Adon Anglon | Izumiya
 Austin Kerby | Le Colonial
 Gerardo Aldana | Halal Guys
 Gaby Batista | Delarosa
+Cassidy Newberry | In N Out
 
