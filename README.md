@@ -5,4 +5,8 @@ List of favorite SF restaurants
 ---|---
 Lisa Leese | Flour + Water
 Dennis Alano | Maestros
+Hursh Karkhanis | Little Star Pizza
+Adon Anglon | Izumiya
+Austin Kerby | Le Colonial
 Gerardo Aldana | Halal Guys
+
