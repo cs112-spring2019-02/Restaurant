@@ -8,7 +8,6 @@ Dennis Alano | Maestros
 Dennis Dang | House of Prime Rib
 Hursh Karkhanis | Little Star Pizza
 Stokala Spring | Zuni
-Adon Anglon | Izumiya
 Austin Kerby | Le Colonial
 Gerardo Aldana | Halal Guys
 Patryk Czerniewicz | USF Cafeteria
