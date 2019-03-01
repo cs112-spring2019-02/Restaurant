@@ -12,8 +12,8 @@ Austin Kerby | Le Colonial
 Gerardo Aldana | Halal Guys
 Patryk Czerniewicz | USF Cafeteria
 Gaby Batista | Delarosa
+Cassidy Newberry | In N Out
 Jerome Reduta | Marufuku Ramen
 Chiara Lim | Souvla
 Marcus Bradlee | MAC'D
 Sophia Ladwiniec | Gracias Madre
-
